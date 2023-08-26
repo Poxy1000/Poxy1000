@@ -6,7 +6,7 @@ I am a GIS analyst currently working at [Southern Alliance for Indigenous Resour
 
 * **Master of Commerce** in Environmental and Development Economics | [Great Zimbabwe University](https://www.gzu.ac.zw/) _2022-23_
 
-* **Post graduate Diploma** in GIS and Remote sensing | [Lupane Sate University](lsu.ac.zw)_2019-20_
+* **Post graduate Diploma** in GIS and Remote sensing | [Lupane Sate University](lsu.ac.zw) _2019-20_
 
 * **BSc Honours** in Geography and Environmental Studies | [Midlands State University](msu.ac.zw) _2013-16_
 
